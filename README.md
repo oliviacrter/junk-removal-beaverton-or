@@ -135,6 +135,7 @@ Most crews give a firm price on-site after seeing the load — before any work s
 
 - [Local hauling service details — what's included in a standard Beaverton haul](https://junkremovalbeavertonor.com/services/)
 - [Pricing reference for load-based junk removal in Beaverton OR](https://junkremovalbeavertonor.com/pricing/)
+- - [Junk Removal Before and After — Beaverton OR Cleanout Reference](./junk-removal-before-and-after-beaverton-or-cleanout-reference.md)
 
 ---
 
